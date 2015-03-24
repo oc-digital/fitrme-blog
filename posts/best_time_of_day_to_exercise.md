@@ -1,6 +1,8 @@
+published on 24 March 2015
+
 # What's the Best Time to Workout?
 
-If you could give your body an edge, burn more calories, and get more health benefits simply by working out at the perfect time, you probably would, right? Some people swear by a 6 a.m. exercise session to their hearts racing and psyched up for the day. Others wouldn't dream of breaking a sweat before noon, preferring a late afternon or evening workout. So, when is the best time to workout &ndash; morning, afternoon, or evening?
+If you could give your body an edge, burn more calories, and get more health benefits simply by working out at the perfect time, you probably would, right? Some people swear by a 6 a.m. exercise session to their hearts racing and psyched up for the day. Others wouldn't dream of breaking a sweat before noon, preferring a late afternoon or evening workout. So, when is the best time to workout &ndash; morning, afternoon, or evening?
 
 Unfortunately, that perfect time isn’t so clear-cut. There's no reliable evidence to suggest that calories are burned more efficiently at certain times of day. However, the time of day can influence how you feel when exercising &ndash; which can impact how likely you are to make exercising a habit.
 
@@ -20,7 +22,7 @@ There are certain _peaks_ of the day where you'll have a slight physiological ad
 
 ## 4. Sleep and Recovery are King
 
-Unless it is really the only time you will work out or the only time you feel the best, you should avoid working out immediately before bed. Exercising too closely to bedtime sabatoges your body's urge to sleep. This isn’t ideal because sleep is very important for recovery. It’s when your body naturally produces most of its own performance-enhancing drugs in the form of hormones. Anything that hurts your ability to sleep should be eliminated if possible.
+Unless it is really the only time you will work out or the only time you feel the best, you should avoid working out immediately before bed. Exercising too closely to bedtime sabotages your body's urge to sleep. This isn’t ideal because sleep is very important for recovery. It’s when your body naturally produces most of its own performance-enhancing drugs in the form of hormones. Anything that hurts your ability to sleep should be eliminated if possible.
 
 Exercise utilizes a lot of nutrients which are further depleted at night. If you're on a strict diet (perhaps trying to lose weight), you run additional risk by working out prior to bed and then not eating to recover from your training session. If you plan to train hard at night, you should have a recovery shake at a minimum before going to sleep.
 
