@@ -1,3 +1,5 @@
+published on 31 March 2015
+
 # 7 Reasons Women Should Lift Weights
 
 Yoga and the treadmill have their place, but they're not enough. Lifting weights gives you an edge over belly fat, stress, heart disease, and cancer &ndash; and it's the single most effective way to look hot in a bikini. Yet somehow women are still hesitant. Only about 1 in 5 females strength train two or more times a week.
