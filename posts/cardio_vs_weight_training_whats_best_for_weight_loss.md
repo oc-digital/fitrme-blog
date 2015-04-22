@@ -1,3 +1,5 @@
+published on 07 April 2015
+
 # Cardio vs. Weight Training: Which is Best for Weight Loss?
 
 Fat loss is one of the most common reasons people exercise. If you're looking to lose weight, you're probably wondering if you should focus on doing cardio or hit the weights. The short answer is both. What matters most is the way you train and your lifestyle.
